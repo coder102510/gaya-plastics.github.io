@@ -1,1 +1,0 @@
-# gaya-plastics.github.io
